@@ -1,8 +1,13 @@
 # Felix M. Brooks
 
-🚀 Customer Support Engineer / Technical Support | Mid/Senior - Level (5 - 10) years of Experience based in New York.  
+🚀 Customer Support Engineer/Technical Support | Mid/Senior - Level (5 - 10)yrs/exp
+
+📍New York, New York
+
 💡 I enjoy working on **AI-powered/SaaS applications** and **Cloud-based Databases**.    
+
 📧 Contact me via email at **felixmbrooks@outlook.com**  
+
 🔗 Connect with me on [LinkedIn](https://www.linkedin.com/in/felixbrooks/)
 
 ---
